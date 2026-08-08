@@ -25,3 +25,4 @@ Clay Rodgers / Clayton Rodgers.
 - FINRA Series 7, 25 and 55. AWS Alexa Certified Developer.
 - Texas A&M University-Commerce. Phi Theta Kappa.
 - Scouting America · American Red Cross · Keep America Beautiful · USTA
+
