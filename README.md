@@ -4,7 +4,7 @@ Software engineer and former NYSE equities floor trader, based in Camden, Maine.
 Fifteen years in investment management; now building things that solve my
 problems, and maybe yours too.
 
-Full name **Clayton Rodgers Sones**
+Full name **Clayton Rodgers Sones** — also written Clayton Sones, and previously Clay Rodgers.
 
 **[sones.dev](https://sones.dev)** · [LinkedIn](https://www.linkedin.com/in/csones/) · [Reddit](https://www.reddit.com/user/justclayhere/) · [X](https://x.com/justclayhere) · [clay@sones.dev](mailto:clay@sones.dev)
 
